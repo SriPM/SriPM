@@ -1,4 +1,0 @@
-SriPM
-=====
-
-Sridurga Yarramsetti Resume
